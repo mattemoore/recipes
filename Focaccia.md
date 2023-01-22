@@ -1,9 +1,9 @@
 ## Focacia Bread
 
 1. Start w/ regular yeast dough recipe BUT:
- - No eggs and milk
- - More yeast than normal
- - Olive oil 
+   1. No eggs and milk
+   1. More yeast than normal
+   1. Olive oil 
 1. No kneading
 1. Cover dough ball in olive oil
 1. Proof
