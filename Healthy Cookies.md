@@ -1,6 +1,5 @@
-1 cup flour
-
-1 cup oats (steel cut is better)
+-  1 cup flour
+-  1 cup oats (steel cut is better)
 
 1/2 cup milk
 
