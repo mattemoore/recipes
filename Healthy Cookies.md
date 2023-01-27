@@ -7,8 +7,10 @@
 -  1/2 sccop crushed flax seeds
 -  3 tablespoons peanut butter
 -  1 teaspoon baking powder
+-  Brown sugar syrup
 
 1. Combine all ingredients
 1. Make balls and spread with fork on parchment on cookie tray
-1. Sprinkle lightly with rock kosher salt
+1. Sprinkle lightly with rock kosher salt and brown sugar
 1. Bake 375f for 20 minutes
+1. Drizzle brown sugar syrup on top
